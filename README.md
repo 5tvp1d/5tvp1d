@@ -4,7 +4,7 @@
 
  ͡ ⠀Hi I'm 𝙎aiko ![Image](https://files.catbox.moe/xzghau.gif)﹒﹒﹒﹒𝟏𝟔 ︵ 𝗧𝗵𝗲𝘆 ﾉ 𝘈𝘴𝘬 𓏻 𓏵 𝙼𝚞𝚕𝚝𝚒𝚏𝚊𝚗𝚍𝚘𝚖 & 𝙼𝚞𝚕𝚝𝚒𝚂𝚑𝚒𝚙 ![image](https://files.catbox.moe/5a8gxz.gif)
 
-![Image](https://files.catbox.moe/qlbn7n.gif) ⤷ Allowed  ﹒ ◠   C+H | Kssr | Ships | Int | Req ⊹
+![Image](https://files.catbox.moe/qlbn7n.gif) ⤷ Allowed  ﹒ ◠   C+H | Ships | Int | Req ⊹
 
 ![Image](https://files.catbox.moe/wm0ync.webp) ⤷ NO  ﹒ ◠ Under 14+ | ProShips | Basic DNI Critera | Copy / Inspo 
 
