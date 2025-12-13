@@ -8,7 +8,7 @@
 
 ![Image](https://files.catbox.moe/wm0ync.webp) ⤷ NO  ﹒ ◠ Under 14+ | ProShips | Basic DNI Critera | Copy / Inspo 
 
-✧ Mostly Around the Spawn area , CRK Area , Library , or Bakery
+✧ Mostly Around the Spawn Point , CRK Area , Library , or Bakery
 
 ![Image](https://files.catbox.moe/2ir5jm.gif)
 
